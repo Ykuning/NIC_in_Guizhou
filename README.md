@@ -1,1 +1,0 @@
-# NIC_in_Guizhou
